@@ -1,1 +1,0 @@
-# sangoccy.github.io
